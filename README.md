@@ -1,6 +1,4 @@
-## welcome to my profile,enjoy ✨️
-
-**HoneyTailGG2/HoneyTailGG2** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+## welcome to my profile and enjoy the games ✨️
 
 Here are some ideas to get you started:
 
